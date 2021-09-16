@@ -1,5 +1,6 @@
 ### Hi there 👋:monkey_face:
 
 ### About Me:
-🍌it all started with a simple project at work..\
-🍌and that's where I encountered the power of 🌟DATA🌟
+🍌loves reading\
+🍌always curious\
+🍌'Enjoy discovering that you're wrong, it means that you're less wrong than before.' -- Think Again, Adam Grant
