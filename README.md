@@ -1,4 +1,4 @@
-### Hi there I'm Henny 👋:monkey_face:
+### Hi there👋:monkey_face:
 
 ### About Me:
 🍌loves reading\
